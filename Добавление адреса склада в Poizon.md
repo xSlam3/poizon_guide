@@ -1,1 +1,0 @@
-Для заказа на пойзон, необходимо добавить адрес склада в приложении можно по инструкции - https://dobropost.com/bz_adress_poizon, я делал для сдэка - https://global.cdek.ru/office
